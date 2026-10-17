@@ -10,4 +10,7 @@
 ![image alt](https://github.com/user-attachments/assets/79260e36-ac31-4988-be58-b0f8a184d428)
 
 4. Pull requests.
-5. 
+
+![image alt](https://github.com/user-attachments/assets/888a6163-1bcb-4177-bd02-021ffd61532d)
+
+6. 
